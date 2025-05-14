@@ -1,8 +1,17 @@
-**🚀 Transform Your Content with Play.ht! 🚀 Grab Your Exclusive 90% OFF Promo Code Now! 🎉**  
+# Transform Your Content with Play.ht! 🚀 Grab Your Exclusive 90% OFF Promo Code Now! 
 
-Are you ready to take your content to the next level? Say hello to **Play.ht**, the ultimate AI-powered text-to-speech platform that turns your written words into professional, lifelike audio in seconds! Whether you’re a podcaster, content creator, marketer, or educator, Play.ht is here to make your life easier, faster, and more engaging. And the best part? We’ve got an exclusive **90% OFF promo code** just for you! 🎁  
+Are you ready to take your content to the next level? Say hello to **Play.ht**, the ultimate AI-powered text-to-speech platform that turns your written words into professional, lifelike audio in seconds!
 
-👉 **Don’t wait! Use this link to claim your discount: [[Play.ht](https://www.play.ht/?via=90off)** 👈 
+<a href="https://www.play.ht/?via=90off">
+  <img src="https://github.com/user-attachments/assets/b9eb4d08-74cb-4b32-8a87-91394ac31fe6" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
+</a>
+
+# [Claim Your Discount Code](https://www.play.ht/?via=90off) 👆👆👆
+
+
+Whether you’re a podcaster, content creator, marketer, or educator, Play.ht is here to make your life easier, faster, and more engaging. And the best part? We’ve got an exclusive **90% OFF promo code** just for you! 🎁  
+
+# 👉 [**Don’t wait! Use this link to claim your discount**](https://www.play.ht/?via=90off) 👈 
 
 ---
 
@@ -12,15 +21,23 @@ Are you ready to take your content to the next level? Say hello to **Play.ht**, 
    Say goodbye to robotic, monotone audio! Play.ht offers **200+ ultra-realistic voices** in 60+ languages, making your content sound professional and engaging.  
 
 2. **Perfect for Podcasts, Videos, and More 🎧**  
-   Whether you’re creating podcasts, YouTube videos, e-learning modules, or audiobooks, Play.ht’s AI voices bring your content to life.  
+   Whether you’re creating podcasts, YouTube videos, e-learning modules, or audiobooks, Play.ht’s AI voices bring your content to life.
 
-3. **Easy to Use 🖥️**  
+   <a href="https://www.play.ht/?via=90off">
+  <img src="https://github.com/user-attachments/assets/b9eb4d08-74cb-4b32-8a87-91394ac31fe6" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
+</a>
+
+# [Claim Your Discount Code](https://www.play.ht/?via=90off) 👆👆👆
+
+4. **Easy to Use 🖥️**  
    No technical skills required! Play.ht’s user-friendly interface lets you convert text to speech in just a few clicks.  
 
-4. **Customizable Audio 🎚️**  
+# 👉 [**Don’t wait! Use this link to claim your discount**](https://www.play.ht/?via=90off) 👈 
+
+5. **Customizable Audio 🎚️**  
    Adjust speed, tone, and pronunciation to match your brand’s style. Add background music or sound effects for an extra touch of professionalism.  
 
-5. **Affordable Pricing 💸**  
+6. **Affordable Pricing 💸**  
    With our exclusive **90% OFF promo code**, you can access premium features at an unbeatable price!  
 
 ---
